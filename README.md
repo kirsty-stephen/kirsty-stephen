@@ -3,7 +3,7 @@
 
 📍 Manchester, UK 
 
-👩🏻‍⚕️  ICU and Heart Failure Nurse.
+👩🏻‍⚕️  ICU and Heart Failure nurse.
 
 👩🏻‍💻   Currently learning web development with The Developer Academy.
 
