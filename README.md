@@ -1,4 +1,4 @@
-### Hi there, I'm Kirsty1 👋
+### Hi there, I'm Kirsty! 👋
 
 <!--
 **kirsty-stephen/kirsty-stephen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
