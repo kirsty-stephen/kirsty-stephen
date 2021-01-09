@@ -7,7 +7,7 @@
 
 👩🏻‍💻   Currently learning web development with The Developer Academy.
 
-💉   Interested in healthcare research, particularly using new technologies.
+💉   Interested in healthcare research using new techonologies.
 
 🌿 📚  Happiest when outdoors or reading.
 
